@@ -1,2 +1,2 @@
-# My-assignments-on-Data-Analysis-Work
+# My-Assignments-on-Data-Analytics-Work
 
